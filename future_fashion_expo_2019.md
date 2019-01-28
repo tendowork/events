@@ -8,6 +8,10 @@ Victoria House, London
 - Use Yak wool, produced in three regions in Central China
 - CEO Carol Chyau, on board of Kering China's Sustainable Innovation Award
 
+**Coccoon Crafts Loom**
+w. [Cocoon Crafts Loom] (https://cocccon-crafts-loom.com/)
+e. coccooncraftsloom@gmail.com
+
 ## Manufacturing
 
 ## Accrediting Bodies
