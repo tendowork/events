@@ -9,8 +9,8 @@ Victoria House, London
 - CEO Carol Chyau, on board of Kering China's Sustainable Innovation Award
 
 **Coccoon Crafts Loom**
-w. https://cocccon-crafts-loom.com/
-e. coccooncraftsloom@gmail.com
+
+https://cocccon-crafts-loom.com/ // coccooncraftsloom@gmail.com
 
 ## Manufacturing
 
