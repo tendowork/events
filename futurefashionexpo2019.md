@@ -7,7 +7,7 @@ Victoria House, London
 ## Accrediting Bodies
 
 **International Working Group on Global Organic Textile Standard**
-Christopher Stopes, Representative in GB & Ireland 
+_Christopher Stopes, Representative in GB & Ireland_
 _stopes@global-standard.org_
 
 - Sanctioning GOTS
