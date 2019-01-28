@@ -10,7 +10,8 @@ Victoria House, London
 
 **Coccoon Crafts Loom**
 
-https://cocccon-crafts-loom.com/ // coccooncraftsloom@gmail.com
+- https://cocccon-crafts-loom.com/ 
+- coccooncraftsloom@gmail.com
 
 ## Manufacturing
 
@@ -18,8 +19,6 @@ https://cocccon-crafts-loom.com/ // coccooncraftsloom@gmail.com
 
 **International Working Group on Global Organic Textile Standard**
 
-Christopher Stopes, Representative in GB & Ireland
-
-_stopes@global-standard.org_
-
+- Attended: Christopher Stopes, Representative in GB & Ireland
+- Christopher's email: stopes@global-standard.org
 - Sanctioning GOTS
