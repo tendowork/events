@@ -15,6 +15,7 @@ Victoria House, London
 **International Working Group on Global Organic Textile Standard**
 
 Christopher Stopes, Representative in GB & Ireland
+
 _stopes@global-standard.org_
 
 - Sanctioning GOTS
