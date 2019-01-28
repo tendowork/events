@@ -2,11 +2,18 @@
 Victoria House, London
 24th - 25th January
 
+## Production
+
+**Shoka**
+- Use Yak wool, produced in three regions in Central China
+- CEO Carol Chyau, on board of Kering China's Sustainable Innovation Award
+
 ## Manufacturing
 
 ## Accrediting Bodies
 
 **International Working Group on Global Organic Textile Standard**
+
 Christopher Stopes, Representative in GB & Ireland
 _stopes@global-standard.org_
 
