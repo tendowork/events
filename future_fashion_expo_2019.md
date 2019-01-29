@@ -1,27 +1,29 @@
 # Future Fashion Expo 2019
-Victoria House, London
-24th - 25th January
-Hashtag:
-Website: [Sustainable Angle]
+- Venue: Victoria House, London
+- Dates 24th & 25th January 2019
+- Hashtags:
+- Website: [Sustainable Angle](https://thesustainableangle.org/)
 
 ## Speakers & Anecdotes ##
 
 **Day 1**
 - Dilys Williams, Professor, Centre for Sustainable Fashion at London College of Fashion
 - Besim Özek, Director, Bossa Denim 
-- Hideaki Nakano, Chief clerk, Toyoshima and Fabrizio Tesi, Comistra 
+- Hideaki Nakano, Chief clerk, Toyoshima 
+- Fabrizio Tesi, Comistra 
 - Orsola de Castro, Co-founder of Fashion Revolution
 - Claire Bergkamp, Global Director of Sustainability and Innovation, Stella McCartney
 - Matthew Drinkwater, Head of Fashion Innovation Agency, London College of Fashion
 - Emma Scarf, Ventures Analyst, Fashion for Good- Plug and Play Accelerator
 - Krishna Manda, Senior Manager In Sustainability Integration, Lenzing Group
 - Edwina Ehrman, Senior Curator at the V&A and Curator of Victoria & Albert Museum’s Fashioned From Nature
-- Ben Gleisner, Co-founder- Connecting Good (CoGo) and Conscious Consumer Guide on “Is a labelling system going to help shoppers to buy clothes that don’t cost the planet?”
+- Ben Gleisner, Co-founder @ Connecting Good (CoGo) + Conscious Consumer Guide on “Is a labelling system going to help shoppers to buy clothes that don’t cost the planet?”
 
 **Day 2**
-- Michael Kininmonth,  Lenzing Group, on the microplastics problem in fashion 
-- Arizona Muse, model and sustainability campaigner, moderating the conversation
-- Tiziano Guardini, Designer, and Adriana Galjasevic, Denim and Sustainability Expert, G-Star RAW
+- Michael Kininmonth,  Lenzing Group
+- Arizona Muse, model and sustainability campaigner
+- Tiziano Guardini, Designer
+- Adriana Galjasevic, Denim and Sustainability Expert, G-Star RAW
 - Lukas Fuchs, Research Analyst @ Make Fashion Circular, Ellen MacArthur Foundation
 - Sergi Masip, Sustainable Development, Hallotex
 - Paulo Amaury, Nova Kaeru,
