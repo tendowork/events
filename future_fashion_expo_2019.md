@@ -49,6 +49,10 @@
 - [Organic Textile Company](https://www.organiccotton.biz)
 - phil@organictextile.biz
 
+**Bossa**
+- [Bossa.com.tr](ogul@bossa.com.tr)
+- ogul@bossa.com.tr
+
 ## Accrediting Bodies ##
 
 **International Working Group on Global Organic Textile Standard**
