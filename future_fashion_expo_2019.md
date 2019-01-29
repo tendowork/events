@@ -2,9 +2,9 @@
 Victoria House, London
 24th - 25th January
 
-## Production
+## Production & Processing
 
-**Shoka**
+**Shokah**
 - Use Yak wool, produced in three regions in Central China
 - CEO Carol Chyau, on board of Kering China's Sustainable Innovation Award
 
@@ -12,9 +12,10 @@ Victoria House, London
 
 - [cocccon-crafts-loom.com](https://cocccon-crafts-loom.com/) 
 - coccooncraftsloom@gmail.com
-- cocccon-crafts-loom.com
 
-## Manufacturing
+**Organic Textile Production**
+- [Organic Textile Company](https://www.organiccotton.biz)
+- phil@organictextile.biz
 
 ## Accrediting Bodies
 
