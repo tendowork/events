@@ -1,8 +1,8 @@
 # Future Fashion Expo 2019
 - Venue: Victoria House, London
-- Dates 24th & 25th January 2019
+- Dates: 24th & 25th January 2019
 - Hashtags:
-- Website: [Sustainable Angle](https://thesustainableangle.org/)
+- Organiser: [Sustainable Angle](https://thesustainableangle.org/)
 
 ## Speakers & Anecdotes ##
 
