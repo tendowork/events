@@ -10,8 +10,9 @@ Victoria House, London
 
 **Coccoon Crafts Loom**
 
-- https://cocccon-crafts-loom.com/ 
+- [cocccon-crafts-loom.com](https://cocccon-crafts-loom.com/) 
 - coccooncraftsloom@gmail.com
+- cocccon-crafts-loom.com
 
 ## Manufacturing
 
