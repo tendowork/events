@@ -58,7 +58,7 @@
 **Frumat**
 - [frumat-bolzano.it](https://www.frumat-bolzano.it/)
 - info@frumat.it
-- Making textiles out of recycled apple skins
+- Frumat specializes in the processing of organic waste (apple peels and cores) and in the sustainable production of paper and leather goods (Apple Skin). 
 
 ## Accrediting Bodies ##
 
