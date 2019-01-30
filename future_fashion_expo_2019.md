@@ -53,6 +53,13 @@
 - [Bossa.com.tr](ogul@bossa.com.tr)
 - ogul@bossa.com.tr
 
+## Innovative Materials ##
+
+**Frumat**
+- [frumat-bolzano.it](https://www.frumat-bolzano.it/)
+- info@frumat.it
+- Making textiles out of recycled apple skins
+
 ## Accrediting Bodies ##
 
 **International Working Group on Global Organic Textile Standard**
